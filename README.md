@@ -1,3 +1,0 @@
-# CTS-285
-CTS285 FA21  
-CTS 285 Rebecca Garcia
